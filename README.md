@@ -1,1 +1,0 @@
-# leaderboard-classic-turkey-dinner-no-price
